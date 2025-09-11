@@ -14,3 +14,5 @@ The manager of this airport is friends with the murderer.
 
 ![page3.png](page3.png)
 
+SEPTEMBER 18 COMMUNITY MEETING 
+https://portland.craigslist.org/wsc/com/d/cornelius-citizens-of-tualitin-valley/7880745859.html
