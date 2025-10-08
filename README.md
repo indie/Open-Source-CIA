@@ -15,8 +15,8 @@ Since I lived in Silicon Valley way back when Larry, Sergey and Marissa were get
 way back then ... as a college grad, I liked and trusted all of them to do what they said they wanted to do with the company. Especially that "don't be Evil" part.  
 And like most people who camped or resided within a CalTrain ride's distance to  $Alphabet-C (GOOG.US)$  Mountain View campuses, I would have loved to work for Google 
 back then. There is no doubt in my mind that a majority of things would be totally different and better for the majority of people alive today .... if you guys had only 
-given me a team and a chance.  Like I told everybody in the column about [All the Native American Leadership Missing in Corporate America], I am who you need to hire to sustain your business -- not 
-people who respond to damage on their ego with physical violence.  The absurdity.
+given me a team and a chance.  Like I told everybody in the column about [All the Native American Leadership Missing in Corporate America], I am who you need to hire 
+to sustain your business -- not people who respond to damage on their ego with physical violence.  The absurdity.
 
 Living on the peninsula, I learned to hide my MBA  and Accountancy degrees like I should be ashamed of being the first of my family to graduate college. Knowing and being 
 able to teach corporations about kanban and kaizen and that there are *technically* at least three different  kinds of accounting, depending on the professional standards' 
@@ -84,15 +84,13 @@ Column CC'd many places elsewhere on the Internet where Larry and Sergey might a
 
 ![Dark_Tetrad](https://github.com/indie/Max_Suckerborg/blob/main/narcissist_platforms_inc.png?raw=true)
 
-DATA for [Data Sifter.mqe]
+DATA for [DataSifter.mqe]
 
 This repo is SHARED with the evidence locker documenting proof that the  SNEERING WHITE CEO OF FACEBOOK he murdered Simon, [kitty programmer].
 The manager of this airport is a lowlife scumbag, tax evader, friends with the murderer.  OF COURSE HE IS; 
 College Dropout CEO cheated his way into Harvard BEFORE he stole the Winklevoss' code and before he stole everything else.
 
-The murderer flew in an airplane -- and he landed at an Airport
-
-![Tualitin_Citizens.png](Tualitin_Citizens.png)
+The murderer flew in an airplane -- and he landed at an Airport.  
 ![page3.png](page3.png)
 
 FULL URL DATA_SOURCES IN FOOTNOTES
