@@ -4,12 +4,8 @@ The content in this repository is meant to be used in conjunction with a #Tensor
 
 The content in this repository will answer the following questions: 
 
-## HOW GOOGLE GAVE ONE TRILLION DOLLARS OF ITS MARKET CAP TO COLLEGE DROPOUT CEO'S META SINCE OCTOBER 7 2023
-## HOW GOOGLE IS GIVING ITS MARKET CAP TO ALEX KARP'S FESTERING PIMPLE
-
-The only thing that unites Israel is their hatred of Palestine peoples.
-
-Executive summary backup URL: https://www.moomoo.com/community/feed/if-i-could-sit-down-and-have-a-conversation-with-114201856507909?futusource=nnq_personal_guest&feed_source=12
+## HOW GOOGLE LOST ONE TRILLION DOLLARS OF ITS MARKET CAP TO COLLEGE DROPOUT CEO'S META SINCE OCTOBER 7 2023
+Executive summary [backup URL].
 
 **FULL VERSION HERE**
 
@@ -86,9 +82,9 @@ would be one of the dumbest things you can do.  I hope you figure out what you c
 
 Column CC'd many places elsewhere on the Internet where Larry and Sergey might also see or read it -- please share it with them directly if you are in a position to do so.
 
+![Dark_Tetrad](https://github.com/indie/Max_Suckerborg/blob/main/narcissist_platforms_inc.png?raw=true)
 
 DATA for [Data Sifter.mqe]
-
 
 This repo is SHARED with the evidence locker documenting proof that the  SNEERING WHITE CEO OF FACEBOOK he murdered Simon, [kitty programmer].
 The manager of this airport is a lowlife scumbag, tax evader, friends with the murderer.  OF COURSE HE IS; 
@@ -101,6 +97,7 @@ The murderer flew in an airplane -- and he landed at an Airport
 
 FULL URL DATA_SOURCES IN FOOTNOTES
 
+[backup URL]: https://www.moomoo.com/community/feed/if-i-could-sit-down-and-have-a-conversation-with-114201856507909?futusource=nnq_personal_guest&feed_source=12
 [Google Drive with video documentation of Meta's CEO's airplane harassment addiction]:https://drive.google.com/drive/folders/1k_nfGhD70Qs6tkKyYlEv-mO5_3-GvMEN?usp=sharing
 [kitty programmer]:https://github.com/indie/kittyprogrammer
 [All the Native American Leadership Missing in Corporate America]:https://www.moomoo.com/community/feed/all-the-native-american-leadership-missing-in-corporate-america-114104729403797?
