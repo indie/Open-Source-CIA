@@ -7,6 +7,8 @@ Over a dozen miles from the Hillsboro Airport, in a neighborhood filled with Ele
 
 ![N308SU_2026_Mar_04](N308SU.png)
 
+![full_flightpath](full_flightpath.png)
+
 ![hagele](hagele.png)
 
 ## WHO MAKES MONEY FROM HILLSBORO AERO ACADEMY? 
