@@ -1,6 +1,20 @@
 # Open-Source CIA
 
-Over a dozen miles from the Hillsboro Airport, in a neighborhood filled with Elementary and Middle schools, teens in high school, pets, and elderly people in assisted living... people are being TERRORIZED on a daily basis by psychotic, foaming-at-the-mouth "Director of Maintenance for Hillsboro Aero Academy" Chuck Hagele who is taking bribes and other illegal payments from Mark Hauser, someone who does not even live in Oregon is making TONS of money flying creaky old 1970's and 1980's jets over our neighborhoods at altitudes TOO LOW TO BE LEGAL.
+##Canadian spyplanes mapping Intel's campuses and employees' neighborhoods? 
+
+### May 9 2026
+![09_May_2026](09_May_2026.png)
+
+### May 5 2026
+![05_May_2026](05_May_2026.png)
+
+### April 30 2026
+![30_April_2026](30_April_2026.png)
+
+
+##Hillsboro Aero Academy chemtrails over elderly people and schools 
+
+Nowhere else in the Tualitin Valley is the frequency of flights this much.  Why?  Over a dozen miles from the Hillsboro Airport, in a neighborhood filled with Elementary and Middle schools, teens in high school, pets, and elderly people in assisted living... people are being TERRORIZED on a daily basis by psychotic, foaming-at-the-mouth "Director of Maintenance for Hillsboro Aero Academy" Chuck Hagele who is taking bribes and other illegal payments from Mark Hauser, someone who does not even live in Oregon is making TONS of money flying creaky old 1970's and 1980's jets over our neighborhoods at altitudes TOO LOW TO BE LEGAL.
 
 
 ## March 4, 2026 FOR EXAMPLE
@@ -10,6 +24,7 @@ Over a dozen miles from the Hillsboro Airport, in a neighborhood filled with Ele
 ![full_flightpath](full_flightpath.png)
 
 ![hagele](hagele.png)
+
 
 ## WHO MAKES MONEY FROM HILLSBORO AERO ACADEMY? 
 
